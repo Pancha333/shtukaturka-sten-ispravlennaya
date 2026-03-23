@@ -1,0 +1,1 @@
+# shtukaturka-sten-ispravlennaya
